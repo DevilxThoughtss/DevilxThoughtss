@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Lila!
+- 👀 I’m interested in Food, Lol.
+- 🌱 I’m currently learning How to eat pie.
+- 💞️ I’m looking to collaborate on n o t h i n g .
+- 📫 How to reach me Discord is SUG4R#8242
+- I like to listen to indie pop.
+- I play roblox, My username is DevilxThoughtss.
